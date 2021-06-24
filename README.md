@@ -1,1 +1,1 @@
-# Hexit
+# [Hexit](https://discord.gg/hexit)
